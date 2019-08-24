@@ -4,6 +4,7 @@ https://twitter.com/SandraLamanda60/status/1165386459181977601?s=08
 
 Lucid post link
 
+https://lucid.blog/sandiecassie470/post/1566684143
 
 cloudinary photo link
 
