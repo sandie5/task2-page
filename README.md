@@ -1,6 +1,6 @@
 twitter flutterwave post link
 
-https://twitter.com/SandraLamanda60/status/1165386459181977601?s=08
+https://twitter.com/SandraLamanda60/status/1165386459181977601?s=19
 
 Lucid post link
 
